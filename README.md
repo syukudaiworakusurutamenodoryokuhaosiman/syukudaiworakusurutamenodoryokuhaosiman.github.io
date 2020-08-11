@@ -1,0 +1,1 @@
+# syukudaiworakusurutamenodoryokuhaosiman.github.io
